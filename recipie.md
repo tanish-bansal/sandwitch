@@ -1,0 +1,25 @@
+recipie is to boil potato and then mix salt ,blackpepper,chilie according to your taste and then mesh potato and then put potato on bread then put another bread on first bread then toast it in toaster and sandwicth is ready
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
